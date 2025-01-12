@@ -86,7 +86,7 @@ _A **Goetia** foi reinterpretada no século XX e XXI por ocultistas e psicólogo
 - **_Psicologia Profunda_**: 
     - _Inspirado por carl jung, muitos veem os espíritos da **Goetia**  como projeções do inconsciente. Trabalhar com esses "arquétipos" pode ajudar no autoconhecimento e na superação de traumas._
 
-- **_Terapia Rituaçística_**:
+- **_Terapia Ritualística_**:
     - _Oculistas modernos usam rituais da **Goetia** como uma forma de autoexpressão e catarse emocional._
 
 - **_Espiritualidade Sincrética_**:
