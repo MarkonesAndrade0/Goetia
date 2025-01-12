@@ -1,3 +1,5 @@
+![Capa](https://github.com/user-attachments/assets/5dac66e6-c304-4ef1-954d-28c25c5650a9)
+
 # **Material de Estudo Sobre a Goetia**
 
 - _A **Goetia** é um termo associado ao estudo e à prática de invocar ou evocar entidades espirituais, particularmente demônios ou espíritos mencionados em textos ocultistas, sendo a mais famosa a obra [**"A Chave Menor de Salomão" (Clavicula Salomonis Regis)**](https://pt.wikipedia.org/wiki/A_Chave_Menor_de_Salomão). Este livro é um grimório (manual de magia) que contém rituais, invocações e descrições de entidades espirituais._
